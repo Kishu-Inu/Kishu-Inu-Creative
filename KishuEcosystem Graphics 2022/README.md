@@ -1,1 +1,0 @@
-KishuEcosystem Graphics 2022
